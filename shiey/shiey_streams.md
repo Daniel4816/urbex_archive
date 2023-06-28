@@ -64,6 +64,7 @@ Found functional cars stream.
 
 Abandoned factory & chimney climb | Stream 18/08/2019  
 2019/08/18
+[Youtube Reupload](https://www.youtube.com/watch?v=klyDw8HvPEM)
 ![Preview](stream_preview/2019-08-18.jpg)
 
 ShieyLIVE - Abandoned Childhood Camp _ Stream - w Checkmate  
