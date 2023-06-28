@@ -1,4 +1,9 @@
-# Info
+# Channels
+[Shiey](shiey/shiey.md)
+
+
+---
+## Info
 This site is a representation of my collection of archived content that has gotten deleted over the years.
 Contact:
 
@@ -13,8 +18,3 @@ I also want to mention all the people who helped me along the way with their con
 [based aka. realpewdiepie](https://discord.com/users/265256075542921217)
 
 [Sentient Tape Drive aka. opsoyo](https://discord.com/users/99284240461479936)
-
-
-# Channels
- [Shiey](shiey/shiey.md)
- 
