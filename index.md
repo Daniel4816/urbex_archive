@@ -1,3 +1,3 @@
 # Channels
- [Shiey](./shiey/shiey.md)
+ [Shiey](urbex_archive/shiey/shiey.md)
  
