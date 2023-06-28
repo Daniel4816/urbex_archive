@@ -8,7 +8,7 @@ Abandoned boilery and caught by security
 2017/11/06
 ![Preview](stream_preview/2017-11-06.jpg)
 
-Entering bio-thermal facility, roofing and alarm. LIVE STREAM
+Entering bio-thermal facility, roofing and alarm. LIVE STREAM  
 2017/12/23
 ![Preview](stream_preview/2017-12-23A.jpg)
 
