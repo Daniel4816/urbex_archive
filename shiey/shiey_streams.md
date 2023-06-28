@@ -22,3 +22,21 @@ Sneaking inside factory & abandoned orphanage
 
 Found server room in an abandoned building  
 2017/12/29
+![Preview](stream_preview/2017-12-29.jpg)
+
+Evading police after entering buildings (The Yellow Bridge)  
+2018/01/16
+![Preview](stream_preview/2018-01-16.jpg)
+
+Sneaking around factory roofs & inside  
+2018/01/17
+![Preview](stream_preview/2018-01-17.jpg)
+
+Sneaking in factory through huge pipe  
+2018/01/18
+![Preview](stream_preview/2018-01-18.jpg)
+
+Casually entering huge working factory (Holy Spoon 21-20-)  
+2018/01/23
+![Preview](stream_preview/2018-01-23.jpg)
+
