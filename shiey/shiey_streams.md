@@ -11,5 +11,9 @@ Abandoned boilery and caught by security
 Triggering alarm & walking inon buildings.  
 2017/12/23
 ![Preview](stream_preview/2017-12-23A.jpg)
+
+Snowy chimney climbs and roofing  
+2017/12/23
 ![Preview](stream_preview/2017-12-23B.jpg)
 
+Sneaking inside factory & abandoned orphanage  
