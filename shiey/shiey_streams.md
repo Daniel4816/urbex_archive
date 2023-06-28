@@ -10,6 +10,6 @@ Abandoned boilery and caught by security
 
 Triggering alarm & walking inon buildings.  
 2017/12/23
-![[2017-12-23A.jpg]]
-![[2017-12-23A.jpg]]
+![Preview](stream_preview/2017-12-23A.jpg)
+![Preview](stream_preview/2017-12-23B.jpg)
 
