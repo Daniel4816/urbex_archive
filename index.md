@@ -6,5 +6,5 @@ I also want to mention all the people who helped me along the way with their con
 
 
 # Channels
- [Shiey](urbex_archive/shiey/shiey.md)
+ [Shiey](shiey/shiey.md)
  
