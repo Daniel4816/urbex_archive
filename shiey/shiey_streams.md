@@ -17,3 +17,8 @@ Snowy chimney climbs and roofing
 ![Preview](stream_preview/2017-12-23B.jpg)
 
 Sneaking inside factory & abandoned orphanage  
+2017/12/27
+![Preview](stream_preview/2017-12-27.jpg)
+
+Found server room in an abandoned building  
+2017/12/29
