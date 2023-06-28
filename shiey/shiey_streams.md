@@ -97,3 +97,7 @@ date unknown
 Abandoned taxi park, theaters and police evasion. LIVE STREA  
 date unknown
 ![Preview](stream_preview/Abandoned_taxi_park_theaters_and_police_evasion._LIVE_STREA.jpg)
+
+Camping & train surfing in the woods | Shiey Live  
+date unknown
+![Preview](stream_preview/Camping___train_surfing_in_the_woods___Shiey_Live.jpg)
