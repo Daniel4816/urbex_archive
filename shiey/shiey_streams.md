@@ -4,11 +4,11 @@ Abandoned factory area and security escape.
 2017/11/05
 ![Preview](stream_preview/2017-11-05.jpg)
 
-### Abandoned boilery and caught by security  
+Abandoned boilery and caught by security  
 2017/11/06
 ![Preview](stream_preview/2017-11-06.jpg)
 
-#### Triggering alarm & walking inon buildings.  
+Triggering alarm & walking inon buildings.  
 2017/12/23
 ![Preview](stream_preview/2017-12-23A.jpg)
 
@@ -61,6 +61,10 @@ Urbex LIVE (going through abandoned buildings)
 Found functional cars stream.  
 2018 Summer
 ![Preview](stream_preview/2018-Summer.jpg)
+
+Abandoned factory & chimney climb | Stream 18/08/2019  
+2019/08/18
+![Preview](stream_preview/2019-08-18.jpg)
 
 ShieyLIVE - Abandoned Childhood Camp _ Stream - w Checkmate  
 2019/08/22
