@@ -58,6 +58,10 @@ Urbex LIVE (going through abandoned buildings)
 2018 Late February maybe
 ![Preview](stream_preview/2018-Late.jpg)
 
+Factory exploration & reflective discussion with worker . | LIVE STREAM  
+2018/03/17  
+NOT ARCHIVED
+
 Found functional cars stream.  
 2018 Summer
 ![Preview](stream_preview/2018-Summer.jpg)
