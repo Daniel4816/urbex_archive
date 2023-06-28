@@ -75,6 +75,10 @@ ShieyLIVE - Abandoned Childhood Camp _ Stream - w Checkmate
 2019/08/22
 ![Preview](stream_preview/2019-08-22.jpg)
 
+Abandoned Soviet Sanatorium Area | Shiey Live
+2019/08/28
+![Preview](stream_preview/Abandoned_Soviet_Sanatorium_Area___Shiey_Live.jpg)
+
 Will climb and enter soviet-era buildings in Eastern Europe  
 date unknown
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe1.jpg)
