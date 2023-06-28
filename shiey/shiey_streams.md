@@ -64,11 +64,14 @@ Found functional cars stream.
 
 Triggering alarms, McDonald's on rooftop | Shiey Live  
 2018/11/02
+[Youtube reupload](https://www.youtube.com/watch?v=iHaj2lXz9J0)
+[Youtube reupload](https://www.youtube.com/watch?v=FjHGqGLPAS8)
+[Youtube reupload](https://www.youtube.com/watch?v=PZh3YlR85Lg)
 ![Preview](stream_preview/Triggering_alarms__McDonald_s_on_rooftop___Shiey_Live.jpg)
 
 Abandoned factory & chimney climb | Stream 18/08/2019  
 2019/08/18
-[Youtube Reupload](https://www.youtube.com/watch?v=klyDw8HvPEM)
+[Youtube reupload](https://www.youtube.com/watch?v=klyDw8HvPEM)
 ![Preview](stream_preview/2019-08-18.jpg)
 
 ShieyLIVE - Abandoned Childhood Camp _ Stream - w Checkmate  
