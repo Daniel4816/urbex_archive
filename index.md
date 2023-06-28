@@ -10,7 +10,9 @@ I also want to mention all the people who helped me along the way with their con
 
 [PaleMoon_Keramika#5654](https://discord.com/users/683489292424577082)
 
-[opsoyo aka. Sentient Tape Drive](https://discord.com/users/99284240461479936)
+[based aka. realpewdiepie](https://discord.com/users/265256075542921217)
+
+[Sentient Tape Drive aka. opsoyo](https://discord.com/users/99284240461479936)
 
 
 # Channels
