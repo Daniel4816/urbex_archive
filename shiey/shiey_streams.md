@@ -8,7 +8,7 @@ Abandoned boilery and caught by security
 2017/11/06
 ![Preview](stream_preview/2017-11-06.jpg)
 
-Triggering alarm & walking inon buildings.  
+Entering bio-thermal facility, roofing and alarm. LIVE STREAM
 2017/12/23
 ![Preview](stream_preview/2017-12-23A.jpg)
 
@@ -78,10 +78,6 @@ date unknown
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe3.jpg)
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe4.jpg)
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe5.jpg)
-
-Entering bio-thermal facility, roofing and alarm. LIVE STREA  
-date unknown
-![Preview](stream_preview/Entering_bio-thermal_facility_roofing_and_alarm._LIVE_STREA.jpg)
 
 Improvised Urbex in Eastern Europe. (Rooftops, rooms etc.)  
 date unknown
