@@ -64,7 +64,7 @@ Train Surfing Journey Across Serbia | Part 5
 2022/12/27  
 [https://www.youtube.com/watch?v=UI7Nu0HjJH4](https://www.youtube.com/watch?v=UI7Nu0HjJH4)  
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-across-serbia) 
-![Preview](video_preview/serbia5.webp)
+![Preview](video_preview/Train_Surfing_Journey_Across_Serbia__Part_5.webp.webp)
 
 ILLEGAL FREEDOM: Train Surfing Journey Across Serbia  
 2023/02/09  
