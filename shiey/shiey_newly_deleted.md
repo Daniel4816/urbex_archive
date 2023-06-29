@@ -6,18 +6,11 @@ Train Surfing Journey To The Baltic Sea | Part 3
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-to-the-baltic-sea)
 ![Preview](video_preview/Train_Surfing_Journey_To_The_Baltic_Sea___Part_3.webp)
 
-Wild Journey Across Montenegro | Part 2  
-2023/03/06  
-[https://www.youtube.com/watch?v=bAyOAWSfyKY](https://www.youtube.com/watch?v=bAyOAWSfyKY)  
-[Shiey.com](https://www.shiey.com/videos/v/wild-journey-across-montenegro-part-2)
-![Preview](video_preview/Wild_Journey_Across_Montenegro_｜_Part_2.webp)
-
 ILLEGAL FREEDOM: Train Surfing Journey To The Black Sea  
 2020/02/12  
 [https://www.youtube.com/watch?v=GF8hMhMlnmg](https://www.youtube.com/watch?v=GF8hMhMlnmg)  
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-to-the-baltic-sea)
 ![Preview](video_preview/ILLEGAL_FREEDOM_-_Train_Surfing_Journey_To_The_Black_Sea.webp)
-
 
 Train Surfing Journey Across Europe | Part 2  
 2020/09/19  
@@ -43,7 +36,6 @@ Train Surfing Journey Across Croatia | Part 1
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-across-croatia)
 ![Preview](video_preview/Train_Surfing_Journey_Across_Croatia___Part_1.jpg)
 
-
 Train Surfing Journey Across Croatia | Part 3  
 2021/01/17  
 [https://www.youtube.com/watch?v=z9BQ4eLRXH0](https://www.youtube.com/watch?v=z9BQ4eLRXH0)  
@@ -62,13 +54,11 @@ Train Surfing Journey Across Montenegro | Part 2
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-across-montenegro)
 ![Preview](video_preview/Train_Surfing_Journey_Across_Montenegro___Part_2.webp)
 
-
 Train Surfing Journey Across Serbia | Part 2  
 2022/09/08  
 [https://www.youtube.com/watch?v=Vo4ggJmyrZs](https://www.youtube.com/watch?v=Vo4ggJmyrZs)  
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-across-serbia)
 ![Preview](video_preview/Train_Surfing_Journey_Across_Serbia___Part_2.webp)
-
 
 Train Surfing Journey Across Serbia | Part 5  
 2022/12/27  
