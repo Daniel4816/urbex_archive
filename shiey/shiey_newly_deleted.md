@@ -70,16 +70,16 @@ ILLEGAL FREEDOM: Train Surfing Journey Across Serbia
 2023/02/09  
 [https://www.youtube.com/watch?v=eUQP_avo6iU](https://www.youtube.com/watch?v=eUQP_avo6iU)  
 [Shiey.com](https://www.shiey.com/videos/v/train-surfing-journey-across-serbia)
-![Preview](video_preview/ILLEGAL_FREEDOM：_Train_Surfing_Journey_Across_Serbia.webp)
+![Preview](video_preview/ILLEGAL_FREEDOM_Train_Surfing_Journey_Across_Serbia.webp)
 
 Wild Journey Across Montenegro | Part 1  
 2023/02/20  
 [https://www.youtube.com/watch?v=gI0K_GbWiNg](https://www.youtube.com/watch?v=gI0K_GbWiNg)  
 [Shiey.com](https://www.shiey.com/videos/v/wild-journey-across-montenegro-part-1)
-![Preview](video_preview/Wild_Journey_Across_Montenegro_｜_Part_1.webp)
+![Preview](video_preview/Wild_Journey_Across_Montenegro__Part_1.webp)
 
 Wild Journey Across Montenegro | Part 2  
 2023/03/06  
 [https://www.youtube.com/watch?v=bAyOAWSfyKY](https://www.youtube.com/watch?v=bAyOAWSfyKY)  
 [Shiey.com](https://www.shiey.com/videos/v/wild-journey-across-montenegro-part-2)
-![Preview](video_preview/Wild_Journey_Across_Montenegro_｜_Part_2.webp)
+![Preview](video_preview/Wild_Journey_Across_Montenegro__Part_2.webp)
