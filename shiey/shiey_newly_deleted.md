@@ -32,6 +32,16 @@ Train Surfing Journey Across Europe | Part 2
 pS6Nqyl86vk
 ![Preview](video_preview/Train_Surfing_Journey_Across_Europe___Part_2.jpg)
 
+Train Surfing Journey Across Europe | Part 3 & 4  
+2020/10/30  
+kLoJaVYI2Zc
+![Preview](video_preview/Train_Surfing_Journey_Across_Europe___Part_3_&_4.jpg)
+
+Train Surfing Journey Across Croatia | Part 1  
+2020/12/14  
+7NMGAIFyapU
+![Preview](video_preview/Train_Surfing_Journey_Across_Croatia___Part_1.jpg)
+
 
 
 
