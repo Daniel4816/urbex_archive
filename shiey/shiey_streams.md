@@ -41,7 +41,9 @@ Casually entering huge working factory (Holy Spoon 21-20-)
 ![Preview](stream_preview/2018-01-23.jpg)
 
 Urbex LIVE - you ever seen anyone do it (Caught and almost beat up for trespassing)  
-2018/01/25
+2018/01/25  
+[Part 1 Youtube reupload](https://www.youtube.com/watch?v=IVVCHHwY1FI)  
+[Part 2 Youtube reupload](https://www.youtube.com/watch?v=ciRDzIfjLzk)
 ![Preview](stream_preview/2018-01-25_1.jpg)
 ![Preview](stream_preview/2018-01-25_2.jpg)
 ![Preview](stream_preview/2018-01-25_3.jpg)
