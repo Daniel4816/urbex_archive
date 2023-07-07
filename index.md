@@ -19,4 +19,6 @@ I also want to mention all the people who helped me along the way with their con
 
 [based aka. realpewdiepie](https://discord.com/users/265256075542921217)
 
+[pantadek aka. pantadek123456](https://discord.com/users/1003624263649087529)
+
 [Sentient Tape Drive aka. opsoyo](https://discord.com/users/99284240461479936)
