@@ -30,9 +30,9 @@ videoPlayer.onended = function(){
 <video id="videoPlayer2" width="400" controls autoplay autobuffer></video>
 
 <script>
-var videoPlayer = document.getElementById('videoPlayer2')
+var videoPlayer2 = document.getElementById('videoPlayer2')
 
-var vArray = [
+var vArray2 = [
     "https://cdn.discordapp.com/attachments/1150835656889745428/1150836828123955300/2_Guys_Sneak_Into_HUGE_Working_Textile_Factory-nfhhrbZSPWc-1.mp4",
     "https://cdn.discordapp.com/attachments/1150835656889745428/1150836978586222682/2_Guys_Sneak_Into_HUGE_Working_Textile_Factory-nfhhrbZSPWc-2.mp4",
     "https://cdn.discordapp.com/attachments/1150835656889745428/1150837058722594846/2_Guys_Sneak_Into_HUGE_Working_Textile_Factory-nfhhrbZSPWc-3.mp4",
@@ -55,12 +55,12 @@ var vArray = [
     "https://cdn.discordapp.com/attachments/1150835656889745428/1150837727047209061/2_Guys_Sneak_Into_HUGE_Working_Textile_Factory-nfhhrbZSPWc-20.mp4",
 ]
 
-videoPlayer.src = vArray[0]
+videoPlayer2.src = vArray2[0]
 
 i = 1
-videoPlayer.onended = function(){
-    if (i < vArray.length) {
-        videoPlayer.src = vArray[i]
+videoPlayer2.onended = function(){
+    if (i < vArray2.length) {
+        videoPlayer2.src = vArray2[i]
        i++
     }
 }
