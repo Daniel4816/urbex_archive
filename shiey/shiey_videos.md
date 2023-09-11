@@ -23,7 +23,7 @@ videoPlayer.onended = function(){
     }
 }
 </script>
-)
+
 
 ## New  
 
