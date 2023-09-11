@@ -4,7 +4,7 @@ Rooftop Escape From Armed Man (POST-ENCOUNTER)
 2016/10/15  
 [https://www.youtube.com/watch?v=sqaWGbNlkIE](https://www.youtube.com/watch?v=sqaWGbNlkIE)   
 [discord cdn]()
-<video id="videoPlayer" width="400" poster="video_preview/Rooftop_Escape_From_Armed_Man_(POST-ENCOUNTER).jpg" autoplay autobuffer controls></video>
+<video id="videoPlayer" width="400" poster="video_preview/Rooftop_Escape_From_Armed_Man_(POST-ENCOUNTER).jpg" autoplay autobuffer></video>
 
 <script>
 var videoPlayer = document.getElementById('videoPlayer')
