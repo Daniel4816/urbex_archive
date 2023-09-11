@@ -27,10 +27,10 @@ videoPlayer.onended = function(){
 
 2 Guys Sneak Into HUGE Working Textile Factory  
 2017/05/21  
-<video id="videoPlayer" width="400" poster="video_preview/Rooftop_Escape_From_Armed_Man_(POST-ENCOUNTER).jpg" controlsList="nodownload noremoteplayback" autoplay autobuffer></video>
+<video id="videoPlayer2" width="400" controls autoplay autobuffer></video>
 
 <script>
-var videoPlayer = document.getElementById('videoPlayer')
+var videoPlayer = document.getElementById('videoPlayer2')
 
 var vArray = [
     "https://cdn.discordapp.com/attachments/1150835656889745428/1150836828123955300/2_Guys_Sneak_Into_HUGE_Working_Textile_Factory-nfhhrbZSPWc-1.mp4",
