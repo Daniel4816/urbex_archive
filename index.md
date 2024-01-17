@@ -1,5 +1,5 @@
 # Channels
-[Shiey](shiey/shiey.md) 
+[Shiey](shiey/shiey.md)  
 [GIFGAS](GIFGAS/GIFGAS.md)
 
 
