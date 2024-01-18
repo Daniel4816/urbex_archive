@@ -1,6 +1,6 @@
 # Channels
 [Shiey](shiey/shiey.md)  
-[GIFGAS](GIFGAS/GIFGAS.md)
+[GIFGAS](GIFGAS/GIFGAS.md)  
 [Bad Cat](Bad Cat/badcat.md)
 
 
