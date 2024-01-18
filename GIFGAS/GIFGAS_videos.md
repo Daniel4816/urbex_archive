@@ -6,6 +6,7 @@ Trainhopping across Serbia | Part 3
 
 The final stretch  
 2022/10/06  
+Longer version unlisted Patreon only  
 ![Preview](video_preview/The_final_stretch.webp)
 
 Trainhopping across Morocco | Part 1  
