@@ -11,11 +11,9 @@ The guard will wait! Sneaked into a closed area.
 2020/06/18  
 ![Preview](video_preview/The_guard_will_wait!_Sneaked_into_a_closed_area..webp)  
 
-
 Chernobyl - What's it like today / Chernobyl documentary  
 2020/06/24  
 ![Preview](video_preview/Chernobyl_-_What's_it_like_today___Chernobyl_documentary.webp)  
-
 
 Relax on the roof. DJI drone accident and the results of the month  
 2020/09/22  
