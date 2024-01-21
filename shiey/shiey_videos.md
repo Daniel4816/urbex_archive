@@ -1,5 +1,10 @@
 ### Videos not available from official sources
 
+shiey - If You Don't Know (Music Video)  
+2015  
+[Youtube](https://youtu.be/1QQYw1_73qo)  
+![Preview](video_preview/vlcsnap-2022-10-25-23h58m12s634.png)  
+
 Rooftop Escape From Armed Man (POST-ENCOUNTER)  
 2016/10/15  
 [https://www.youtube.com/watch?v=sqaWGbNlkIE](https://www.youtube.com/watch?v=sqaWGbNlkIE)   
@@ -35,10 +40,19 @@ Running on top moving freight train
 2017/06/17  
 ![Preview](video_preview/vlcsnap-2022-10-25-23h54m13s069.png)  
 
-shiey - If You Don't Know (Music Video)  
-2015  
-[Youtube](https://youtu.be/1QQYw1_73qo)  
-![Preview](video_preview/vlcsnap-2022-10-25-23h58m12s634.png)  
+The Most Painful Train Surfing Journey | Part 1 - Ignorance  
+2019/06/26  
+Partially available in [Train Surfing Journey To Capital City](https://www.shiey.com/videos/v/train-surfing-journey-to-capital-city)  
+![Preview](video_preview/20190626_bS7e7FBIuTk_The_Most_Painful_Train_Surfing_Journey___Part_1_-_Ignorance.jpg)  
 
+Train Surfing Journey To Capital City | Part 2 - WIllpower  
+2019/07/03  
+Partially available in [Train Surfing Journey To Capital City](https://www.shiey.com/videos/v/train-surfing-journey-to-capital-city)  
+![Preview](video_preview/20190703_RWdZYznL8VY_Train_Surfing_Journey_To_Capital_City___Part_2_-_WIllpower.jpg)  
+
+
+Homeless Journey To Riga: Danger, Drama & Despair | Latvia Chronicles Part 1  
+2019/07/11  
+![Preview](video_preview/20190711_p7nfOgZFmtk_Homeless_Journey_To_Riga_-_Danger,_Drama_&_Despair___Latvia_Chronicles_Part_1.jpg)  
 
 
