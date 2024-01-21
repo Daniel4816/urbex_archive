@@ -10,7 +10,7 @@
 This site is a representation of my collection of archived content that has gotten deleted over the years.  
 Contact:
 
-Discord: [Daniel4816](https://discord.com/users/822509408390479872)
+Discord: [Urbexer (Daniel4816)](https://discord.com/users/745260511980945498)
 
 [Discord server](https://discord.gg/J7CYmrJ9Ew)
 
