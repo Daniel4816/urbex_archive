@@ -53,6 +53,7 @@ Partially available in [Train Surfing Journey To Capital City](https://www.shiey
 
 Homeless Journey To Riga: Danger, Drama & Despair | Latvia Chronicles Part 1  
 2019/07/11  
+[odysee.com](https://odysee.com/@urbexArchive:5/Homeless-Journey-To-Riga-Latvia-Chronicles-Part-1:1)  
 ![Preview](video_preview/20190711_p7nfOgZFmtk_Homeless_Journey_To_Riga_-_Danger,_Drama_&_Despair___Latvia_Chronicles_Part_1.jpg)  
 
 
