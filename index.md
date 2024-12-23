@@ -12,7 +12,7 @@ Contact:
 
 Discord: [Urbexer (Daniel4816)](https://discord.com/users/745260511980945498)
 
-[Discord server](https://discord.gg/J7CYmrJ9Ew)
+[Discord server](https://discord.gg/2QPsdB23JX)
 
 I also want to mention all the people who helped me along the way with their contribution of archived content.
 
