@@ -68,6 +68,10 @@ Found functional cars stream.
 2018 Summer
 ![Preview](stream_preview/2018-Summer.jpg)
 
+Q&A STREAM. | shiey LIVE
+2018/09/13
+![Preview](stream_preview/2018-09-13.jpg)
+
 Triggering alarms, McDonald's on rooftop | Shiey Live  
 2018/11/02  
 [Youtube reupload](https://www.youtube.com/watch?v=iHaj2lXz9J0)  
