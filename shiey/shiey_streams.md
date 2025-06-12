@@ -60,15 +60,51 @@ Urbex LIVE (going through abandoned buildings)
 2018 Late February maybe
 ![Preview](stream_preview/2018-Late.jpg)
 
+WIDEST rooftop in the country. | LIVE STREAM  
+2018/03/11
+![Preview](stream_preview/2018-03-11.jpg)
+
+HUGE abandoned territory & security escape. | LIVE STREAM  
+2018/03/12
+![Preview](stream_preview/2018-03-12.jpg)
+
+Climbing 240m radio tower. | LIVE STREAM  
+2018/03/16
+![Preview](stream_preview/2018-03-16.jpg)
+
 Factory exploration & reflective discussion with worker . | LIVE STREAM  
 2018/03/17  
-NOT ARCHIVED
+![Preview](stream_preview/2018-03-17.jpg)
 
-Found functional cars stream.  
-2018 Summer
-![Preview](stream_preview/2018-Summer.jpg)
+FULLY STOCKED underground safe house | LIVE STREAM  
+2018/03/25
+![Preview](stream_preview/2018-03-25.jpg)
 
-Q&A STREAM. | shiey LIVE
+Found functional cars stream. LIVE STREAM  
+2018/08/17
+![Preview](stream_preview/2018-08-17.jpg)
+
+POV Urban Climbing & Exploration | shiey LIVE (broken video)  
+2018/08/17
+![Preview](stream_preview/2018-08-17_1-a5oeBpMTIFc.jpg)
+
+POV Urban Climbing & Exploration | shiey LIVE  
+2018/08/17
+![Preview](stream_preview/2018-08-17_2-iUgk_rIb2pE.jpg)
+
+POV Urban Climbing & Exploration | shiey LIVE  
+2018/08/18
+![Preview](stream_preview/2018-08-18_4-PbgIFFzfFlo_cut.jpg)
+
+Q&A 100m above ground | shiey LIVE  
+2018/08/27
+![Preview](stream_preview/2018-08-27.jpg)
+
+POV Urban climbing & Exploration | shiey LIVE  
+2018/08/30
+![Preview](stream_preview/2018-08-30_5-3gnkPQDOuY4.jpg)
+
+Q&A STREAM. | shiey LIVE  
 2018/09/13
 ![Preview](stream_preview/2018-09-13.jpg)
 
