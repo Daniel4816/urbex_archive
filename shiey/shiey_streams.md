@@ -56,13 +56,10 @@ Found cars from a museum in abandoned building.
 2018-02-09
 ![Preview](stream_preview/2018-02-09.jpg)
 
-Urbex LIVE (going through abandoned buildings)  
-2018 Late February maybe
-![Preview](stream_preview/2018-Late.jpg)
-
-WIDEST rooftop in the country. | LIVE STREAM  
+live title: Urbex LIVE (going through abandoned buildings)  
+upload title: WIDEST rooftop in the country. | LIVE STREAM  
 2018/03/11
-![Preview](stream_preview/2018-03-11.jpg)
+![Preview](stream_preview/2018-Late.jpg)
 
 HUGE abandoned territory & security escape. | LIVE STREAM  
 2018/03/12
