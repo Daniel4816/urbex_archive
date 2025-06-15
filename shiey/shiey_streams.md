@@ -1,5 +1,17 @@
 # Shiey Livestreams
 
+Will try to climb something... | shiey LIVE  
+2017/09/25
+![Preview](stream_preview/2017-09-25_1.jpg)
+![Preview](stream_preview/2017-09-25_2.jpg)
+![Preview](stream_preview/2017-09-25_3.jpg)
+![Preview](stream_preview/2017-09-25_4.jpg)
+![Preview](stream_preview/2017-09-25_5.jpg)
+
+Urban Climbing & Exploration | shiey LIVE  
+2017/10/16
+![Preview](stream_preview/2017-10-16.jpg)
+
 Abandoned factory area and security escape.  
 2017/11/05
 ![Preview](stream_preview/2017-11-05.jpg)
@@ -47,10 +59,15 @@ Urbex LIVE - you ever seen anyone do it (Caught and almost beat up for trespassi
 ![Preview](stream_preview/2018-01-25_1.jpg)
 ![Preview](stream_preview/2018-01-25_2.jpg)
 ![Preview](stream_preview/2018-01-25_3.jpg)
+![Preview](stream_preview/2018-01-24.jpg)
+
 
 Found... someone I would have never expected in an abandoned hospital.  
+live title: URBEX LIVE - exploring forbidden places.  
 2018/02/08
+![Preview](stream_preview/2018-02-08_1.jpg)
 ![Preview](stream_preview/2018-02-08.jpg)
+![Preview](stream_preview/2018-02-08_2.jpg)
 
 Found cars from a museum in abandoned building.  
 2018-02-09
@@ -121,7 +138,7 @@ ShieyLIVE - Abandoned Childhood Camp _ Stream - w Checkmate
 2019/08/22
 ![Preview](stream_preview/2019-08-22.jpg)
 
-Abandoned Soviet Sanatorium Area | Shiey Live
+Abandoned Soviet Sanatorium Area | Shiey Live  
 2019/08/28
 ![Preview](stream_preview/Abandoned_Soviet_Sanatorium_Area___Shiey_Live.jpg)
 
