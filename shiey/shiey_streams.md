@@ -36,6 +36,10 @@ Found server room in an abandoned building
 2017/12/29
 ![Preview](stream_preview/2017-12-29.jpg)
 
+Improvised Urbex in Eastern Europe. (Rooftops, rooms etc.)  
+2018/01/16
+![Preview](stream_preview/Improvised_Urbex_in_Eastern_Europe._Rooftops_rooms_etc..jpg)
+
 Evading police after entering buildings (The Yellow Bridge)  
 2018/01/16
 ![Preview](stream_preview/2018-01-16.jpg)
@@ -53,14 +57,13 @@ Casually entering huge working factory (Holy Spoon 21-20-)
 ![Preview](stream_preview/2018-01-23.jpg)
 
 Urbex LIVE - you ever seen anyone do it (Caught and almost beat up for trespassing)  
-2018/01/25  
+2018/01/24  
 [Part 1 Youtube reupload](https://www.youtube.com/watch?v=IVVCHHwY1FI)  
 [Part 2 Youtube reupload](https://www.youtube.com/watch?v=ciRDzIfjLzk)
 ![Preview](stream_preview/2018-01-25_1.jpg)
 ![Preview](stream_preview/2018-01-25_2.jpg)
 ![Preview](stream_preview/2018-01-25_3.jpg)
 ![Preview](stream_preview/2018-01-24.jpg)
-
 
 Found... someone I would have never expected in an abandoned hospital.  
 live title: URBEX LIVE - exploring forbidden places.  
@@ -149,10 +152,6 @@ date unknown
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe3.jpg)
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe4.jpg)
 ![Preview](stream_preview/Will_climb_and_enter_soviet-era_buildings_in_Eastern_Europe5.jpg)
-
-Improvised Urbex in Eastern Europe. (Rooftops, rooms etc.)  
-date unknown
-![Preview](stream_preview/Improvised_Urbex_in_Eastern_Europe._Rooftops_rooms_etc..jpg)
 
 Abandoned taxi park, theaters and police evasion. LIVE STREA  
 date unknown
