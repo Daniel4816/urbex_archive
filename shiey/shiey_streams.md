@@ -80,6 +80,8 @@ live title: Urbex LIVE (going through abandoned buildings)
 upload title: WIDEST rooftop in the country. | LIVE STREAM  
 2018/03/11
 ![Preview](stream_preview/2018-Late.jpg)
+![Preview](stream_preview/2018-03-11_2.jpg)
+![Preview](stream_preview/2018-03-11_3.jpg)
 
 HUGE abandoned territory & security escape. | LIVE STREAM  
 2018/03/12
